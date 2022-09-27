@@ -1,2 +1,0 @@
-# McYoshii.github.io
-portfolio
